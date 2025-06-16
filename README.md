@@ -2,7 +2,7 @@
 
 Youtube Video link - 
 
-AI decoders_Ch.M.Karthikeya_Jazzee2025_PitchVideo - 
+AI decoders_Ch.M.Karthikeya_Jazzee2025_PitchVideo -  https://youtu.be/H4n1WNZqvQ0
 
 # Frapp: Bridging the Design-Dev Divide with AI
 
